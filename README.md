@@ -1,0 +1,1 @@
+# He-first-turns-and-travels-10-units-of-distance-His-second-turn-is-upward-for-20-units-Third-turn-is
